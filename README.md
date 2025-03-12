@@ -6,7 +6,7 @@ Passionate about the intersection of mathematics, physics, and philosophy, I'm c
 
 ### About me
 
-- Undergraduate physicist based in Brazil, currently studying/working at Universidade Federal do Rio Grande do Norte.
+- Undergraduate physicist based in Brazil, currently studying at Universidade Federal do Rio Grande do Norte.
 - Deeply influenced by Immanuel Kant, Gilles Deleuze and Siddharta Gautama.
 - I'm currently facing the Samsara Wheel.
 - Aspiring to pursue a Pure Mathematics degree after completing my Physics degree, diving even deeper into the elegance of mathematical structures and abstraction.
